@@ -1,0 +1,8 @@
+ This file is absolutely free of malware. The purpose of this file is to share the keylogger code with you.
+ This keylogger will never track your keyboard even if it is inactive. You need to set this up and convert it to an exe file.
+ By downloading this file, you agree that yigittalhasengunalp is not responsible for any bad situations that may occur.
+ NEVER USE THESE CODES MALICIOUSLY!!!!
+
+
+
+ I Am Absolutely Not Responsible for Situations That May Occur If You Do Not Read
